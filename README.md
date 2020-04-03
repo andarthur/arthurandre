@@ -1,2 +1,0 @@
-# arthurandre
-personal website
